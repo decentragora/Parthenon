@@ -1,1 +1,0 @@
-# Parthenon-Management
